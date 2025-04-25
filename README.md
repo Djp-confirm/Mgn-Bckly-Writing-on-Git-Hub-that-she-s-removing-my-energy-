@@ -1,1 +1,0 @@
-# Mgn-Bckly-Writing-on-Git-Hub-that-she-s-removing-my-energy-
